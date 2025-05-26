@@ -2,7 +2,7 @@
 
 Effective Date: 26th May 2025
 
-We respect your privacy and are committed to protecting your personal information. This Privacy Policy explains how we collect, use, and safeguard your data when you use our mobile Gamelication Freefall ("the Game").
+We respect your privacy and are committed to protecting your personal information. This Privacy Policy explains how we collect, use, and safeguard your data when you use our mobile game Freefall ("the Game").
 
 #### 1. Data Collection
 
